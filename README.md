@@ -1,6 +1,18 @@
 # +Ver-video-wanda-nara-y-keita-balde-filtran-pruebas-de-infidelidad-hacia-mauro-icardi
 
-En las últimas horas, una ola de controversia ha surgido en las redes sociales tras la filtración de un supuesto video que involucra a Wanda Nara y el futbolista Keita Baldé. Según diversas fuentes, estas imágenes habrían sido grabadas por las cámaras de seguridad de la casa de Mauro Icardi, generando un intenso debate sobre la fidelidad de la mediática figura argentina.
+En las últimas horas, una ola de controversia ha surgido en las redes sociales
+
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+
+tras la filtración de un supuesto video que involucra a Wanda Nara y el futbolista Keita Baldé. Según diversas fuentes, estas imágenes habrían sido grabadas por las cámaras de seguridad de la casa de Mauro Icardi, generando un intenso debate sobre la fidelidad de la mediática figura argentina.
 
 Las redes han estallado con la aparición de nuevas imágenes y videos en los que se puede observar a Wanda Nara y Keita Baldé en situaciones comprometedoras dentro del hogar que compartía con Icardi.
 
